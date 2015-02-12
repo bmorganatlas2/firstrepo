@@ -1,1 +1,0 @@
-["Qui vitae vero et dolorem ratione et inventore. Quae consequatur autem corporis autem quia in et. Minus reprehenderit aperiam quisquam aut.", "Itaque dicta minus nulla sapiente impedit nihil. Est aut perspiciatis tenetur fugiat. Rerum et ut exercitationem enim neque reiciendis. Necessitatibus deserunt labore qui ea sint voluptas."]
