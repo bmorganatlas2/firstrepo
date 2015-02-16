@@ -1,1 +1,0 @@
-["Quaerat impedit velit ipsum quos. Aut autem non. Nam tempora consequatur ratione.", "Consequatur qui accusamus. Enim et animi assumenda quisquam et corporis quia. Consequatur repellendus id laudantium eos tenetur.", "Alias labore ea consequatur. Provident perspiciatis asperiores sit quidem impedit. Minima laudantium quia atque quas velit est. Placeat vel et."]

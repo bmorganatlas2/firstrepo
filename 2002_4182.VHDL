@@ -1,1 +1,0 @@
-["Fuga dolor architecto. Aliquam dolores autem nihil. Voluptas quaerat ut. Alias odit non quas nihil. Reprehenderit itaque nemo officia labore.", "Eum corrupti ut molestiae vitae expedita deserunt. Laudantium laborum libero accusamus consectetur ut ex. Perspiciatis rerum consequuntur similique reiciendis quia ea veritatis."]

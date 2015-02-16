@@ -1,1 +1,0 @@
-["Omnis sed tempore voluptas. Voluptas aut qui blanditiis itaque. Assumenda et minus tempora vero est doloremque. Numquam asperiores est omnis eaque aut fugiat."]

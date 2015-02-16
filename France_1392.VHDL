@@ -1,1 +1,0 @@
-["Sunt dolores suscipit. Eos sapiente dicta eum et sit voluptatem. Fugit iusto ut praesentium unde aliquam aut id.", "Repellendus amet nobis doloremque facilis est sunt. Dicta vitae eaque animi. Nobis provident rerum voluptates."]
